@@ -1,6 +1,6 @@
-## NoorderwijkRP
+## WoerdenRP
 
 **Onze links:**
 
-🙋‍♀️ Website: https://noorderwijkrp.nl/ <br>
-🌈 Discord: https://noorderwijkrp.nl/discord <br>
+🙋‍♀️ Website: https://woerdenrp.nl/ <br>
+🌈 Discord: https://woerdenrp.nl/discord <br>
